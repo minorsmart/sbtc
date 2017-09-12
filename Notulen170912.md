@@ -8,4 +8,4 @@ Partners zorgen ervoor dat er voldoende opdrachten zijn voor de studenten en voo
 
 Toin gaf aan dat er nog ruimtes beschikbaar zijn voor. Peter en Witek hebben het idee om hier een Smart Business and Technology Center te vestigen. Waar studenten van FEM, Engineering, Automotive en ICA volgens Smart Education principes onderwijs kunnen volgen.
 
-<img src="https://github.com/minorsmart/sbtc/blob/master/img/Screen%20Shot%202017-09-12%20at%2013.31.09.png" alt="Smart " height="420" width="420">
+<img src="https://github.com/minorsmart/sbtc/blob/master/img/Screen%20Shot%202017-09-12%20at%2013.31.09.png" alt="Smart " height="420" width="420" align="middle">
