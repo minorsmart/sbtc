@@ -1,4 +1,4 @@
-## Bezoek bij Clean Mobility Center / Mobility Innovation Center (MIC) / IPKW
+## Bezoek bij Clean Mobility Center / Mobility Innovation Center / IPKW
 
 Op 12 september hebben [Peter Verschut](https://www.linkedin.com/in/peter-verschut-94b6116/?ppe=1) en [Witek ten Hove](https://witusj.github.io/personal/) het [Clean Mobility Center (CMC)](https://www.cleanmobility.eu/) op de Kleefse Waard bezocht. HAN collega [Toin Peters](https://www.linkedin.com/in/toin-peters-81902623/?ppe=1) heeft daar het [Mobility Innovation Center (MIC)](https://www.han.nl/gebied/techniek/nieuws/nieuws/mobility-innovation-cente/) opgericht waar studenten van HAN Automotive werken aan projecten uit de praktijk. Het MIC is dit jaar gestart en is een uitwerking van een nieuwe visie op Hoger Onderwijs, waarbij kennis en praktijkervaring op dezelfde plek en plaats wordt aangeboden.
 
