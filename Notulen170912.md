@@ -4,7 +4,7 @@ Op 12 september hebben [Peter Verschut](https://www.linkedin.com/in/peter-versch
 
 Momenteel werken enkele tientallen tweedejaars studenten in teams aan 20 opdrachten die vanuit de praktijk zijn aangeleverd. De opdrachtgevers zijn bedrijven en organisaties die zich duurzaam aan het MIC hebben verbonden. De HAN is één van de partners.
 
-Partners zorgen ervoor dat er voldoende opdrachten zijn voor de studenten en voor de financiering van de faciliteiten en activiteiten. Voor een groot gedeelte wordt er in natura afgerekend (materialen, tijd, expertise. etc.) De huur van het pand is 60.000 EUR. Daarvan neemt IPKW 50.000 EUR voor haar rekening, de overige 10.000 EUR wordt door de Stichting MIC betaald. GWL verbruik wordt geschat op 50.000 EUR en is tevens voor rekening van de Stichting. De Stichting wordt gefinancierd door de partners en vanuit subsidies (e.g. Proeftuin).
+Partners zorgen ervoor dat er voldoende opdrachten zijn voor de studenten en voor de financiering van de faciliteiten en activiteiten. Voor een groot gedeelte wordt er in natura afgerekend (materialen, tijd, expertise. etc.)
 
 Toin gaf aan dat er nog ruimtes beschikbaar zijn voor. Toin, Peter en Witek hebben het idee om op deze locatie een **Smart Business and Technology Center** te vestigen waar studenten van de FEM, Engineering, Automotive en ICA volgens [Smart Education](https://minorsmart.github.io/presentations/smartedu/#/) principes onderwijs kunnen volgen.
 
